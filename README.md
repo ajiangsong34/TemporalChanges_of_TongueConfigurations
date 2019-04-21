@@ -1,1 +1,0 @@
-# TemporalChanges_of_TongueConfigurations
